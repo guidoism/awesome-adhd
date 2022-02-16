@@ -134,3 +134,11 @@ Article: [How does Strattera Work? | ADD ADHD Blog.com](http://addadhdblog.com/h
 ### Coaching
 
 [Dana Rayburn](https://danarayburn.com/)
+
+## Characteristics
+
+* https://vm.tiktok.com/ZM8EoNa5o/
+* https://vm.tiktok.com/ZM8EEE9TS/
+* https://vm.tiktok.com/ZM8EojCjP/
+
+
