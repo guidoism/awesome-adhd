@@ -138,7 +138,7 @@ Article: [How does Strattera Work? | ADD ADHD Blog.com](http://addadhdblog.com/h
 ## Characteristics
 
 * [TikTok Video -- Mumble Mumble Drive My Car](https://vm.tiktok.com/ZM8EoNa5o/) - By @courtneyadhd, audio processing issues
-* https://vm.tiktok.com/ZM8EEE9TS/
+* [TikTok VIdeo -- We walk really fast, keep up!](https://vm.tiktok.com/ZM8EEE9TS/) - By @connordewolfe, we talk fast and loud, walk fast, and instead of saying "what?" for the third time we just smile and nod
 * https://vm.tiktok.com/ZM8EojCjP/
 
 
