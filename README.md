@@ -137,7 +137,7 @@ Article: [How does Strattera Work? | ADD ADHD Blog.com](http://addadhdblog.com/h
 
 ## Characteristics
 
-* [TikTok Video -- Mumble Mumble Drive My Car](https://vm.tiktok.com/ZM8EoNa5o/) -- By @courtneyadhd, audio processing issues, we here what people are saying but it takes time to engage that part of our brain so we don't understand the first part and normal people don't understand what part you need repeated
+* [TikTok Video -- Mumble Mumble Drive My Car](https://vm.tiktok.com/ZM8EoNa5o/) -- By @courtneyadhd, audio processing issues, we here what people are saying but it takes time to engage that part of our brain so we don't understand the first part and normal people don't understand what part you need repeated. Her [Attention Lag](https://www.tiktok.com/@courtneyadhd/video/7011325505861340421)
 * [TikTok Video -- We walk really fast, keep up!](https://vm.tiktok.com/ZM8EEE9TS/) -- By @connordewolfe, we talk fast and loud, walk fast, and instead of saying "what?" for the third time we just smile and nod
 * [TikTok Video -- Too many hobbies](https://vm.tiktok.com/ZM8EojCjP/) -- By @brave.dave, we dive deep into a hobby, buy all the stuff for it and when we feel like we understand it enough we move on to the next hobby without actually accomplishing anything in the first hobby
 * [TikTok Video -- Object Permanence](https://www.tiktok.com/@courtneyadhd/video/7033452095328062725) -- By @courtneyadhd, if we don't see it then we forget about it, like forgetting to take meds on vacation because they are in your toiletries bag instead of where they normally are, or needing to put stuff in your shoes in front of the door so you won't forget on the way out of the house
