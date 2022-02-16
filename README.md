@@ -143,5 +143,6 @@ Short videos describing characteristics that might feel very familiar.
 * [TikTok Video -- We walk really fast, keep up!](https://vm.tiktok.com/ZM8EEE9TS/) -- By @connordewolfe, we talk fast and loud, walk fast, and instead of saying "what?" for the third time we just smile and nod
 * [TikTok Video -- Too many hobbies](https://vm.tiktok.com/ZM8EojCjP/) -- By @brave.dave, we dive deep into a hobby, buy all the stuff for it and when we feel like we understand it enough we move on to the next hobby without actually accomplishing anything in the first hobby
 * [TikTok Video -- Object Permanence](https://www.tiktok.com/@courtneyadhd/video/7033452095328062725) -- By @courtneyadhd, if we don't see it then we forget about it, like forgetting to take meds on vacation because they are in your toiletries bag instead of where they normally are, or needing to put stuff in your shoes in front of the door so you won't forget on the way out of the house. @catieosaurus's [Emotional Permanence](https://www.tiktok.com/@catieosaurus/video/6961848131394882822) video is related.
-
+* Video from Malcolm in the Middle where the dad is trying to do something but has a million sub tasks that need to be completed first
+* Video from Brooklyn 99 with the mail tub
 
